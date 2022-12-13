@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @fontainecoutino
+- 👀 I’m interested in food and programming.
+- 📫 How to reach me email.
